@@ -6,6 +6,4 @@ And my hobbies are cycling, reading books, watching science fictional movies and
 I'm also interested in some games like cricket,chess, table tennis etc.
 My phone number is 9482580215.
 My official e-mail id is 01fe23bar016@kletech.ac.in and personal email id is nagarajsbhat12@gmail.com
-https://drive.google.com/file/d/17tylG3k0WTLHr-ajU-XJ2t9YtKKgWiY3/view?usp=drivesdk ( this photo is taken when I went to the hanging bridge in honnavar it's a peaceful place) . 
-https://drive.google.com/file/d/19CgItulGiPdUU5umfbyrpPGNhpLu0MZf/view?usp=drivesdk ( this photo is taken when I was in 9th standard) 
 Thank you
